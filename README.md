@@ -8,5 +8,5 @@ URL: TimSkaggs.com
 
 -------------------
 
-Background via http://www.widescreen-wallpaper.eu/wallpapers/hdr_city_skyscraper_night-1280x800.jpg
+Background via http://wallpaperswide.com/city_hdr-wallpapers.html
 
